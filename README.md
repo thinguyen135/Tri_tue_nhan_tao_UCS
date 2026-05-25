@@ -1,1 +1,1 @@
-﻿# Tri_tue_nhan_tao_UCS
+Nguyễn Văn Thi -24110334
